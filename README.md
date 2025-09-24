@@ -6,4 +6,4 @@ Type 3 for Scissors<br>
 <br><br><br><br><br>
 Made by NyxVeil.<br>
 To contact:<br>
-nyxveil78@gmail.com
+rishabh078buisness@gmail.com
